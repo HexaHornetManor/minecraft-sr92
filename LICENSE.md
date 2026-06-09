@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with minecraft Scripts best, the #1 Script. Includes private server access and anti-ban for unbeatable
 
 
 
